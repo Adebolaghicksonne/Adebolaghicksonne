@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Adebolaghicksonne
+73123537/git.- 👋 Hi, I’m @Adebolaghicksonne
 - 👀 I’m interested in creating New ideas....
 - 🌱 I’m currently learning artist stuffs..
 - 💞️ I’m looking to collaborate on . logos..
