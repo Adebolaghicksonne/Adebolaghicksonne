@@ -8,5 +8,5 @@
 
 <!---
 Adebolaghicksonne/ is a ✨ author specialise journal editing ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+You can click the Preview link to take a look at your changes...Tap on a clip to paste it in the text box.Tap on a clip to paste it in the text box.
 --->
